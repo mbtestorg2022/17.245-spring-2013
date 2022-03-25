@@ -722,9 +722,9 @@ Sexual Orientation / Same-Sex Marriage Cases
 
 Talbot, Margaret. "[A Risky Proposal](http://www.newyorker.com/reporting/2010/01/18/100118fa_fact_talbot)," _New Yorker_, January 18, 2010.
 
-![This resource may not render correctly in a screen reader.](/images/inacessible.gif)[Brief of Petitioners (PDF)](https://www.clearinghouse.net/chDocs/public/PB-CA-0029-0010.pdf), _Hollingsworth v. Perry_, clearinghouse.net.
+[Brief of Petitioners (PDF)](https://www.clearinghouse.net/chDocs/public/PB-CA-0029-0010.pdf), _Hollingsworth v. Perry_, clearinghouse.net.
 
-![This resource may not render correctly in a screen reader.](/images/inacessible.gif)[Brief for Respondents (PDF)](https://www.clearinghouse.net/chDocs/public/PB-CA-0029-0018.pdf), _Hollingsworth v. Perry_, clearinghouse.net.
+[Brief for Respondents (PDF)](https://www.clearinghouse.net/chDocs/public/PB-CA-0029-0018.pdf), _Hollingsworth v. Perry_, clearinghouse.net.
 
 "[Hollingsworth v. Perry: Full Transcript of Oral Arguments On Gay Marriage Released (AUDIO)](http://www.huffingtonpost.com/2013/03/26/hollingsworth-v-perry_n_2952605.html)." _Huffington Post_, March 26, 2013.
 
